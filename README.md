@@ -1,3 +1,3 @@
 # yumi
 
-Hello my name is yumi
+Hello my name is kimyumi.
